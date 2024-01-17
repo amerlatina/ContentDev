@@ -1,1 +1,1 @@
-Head over to [https://microsoft.sharepoint.com/teams/FashionMicrosoft](Fashion@Microsoft Sharepoint Site). 
+Head over to [Fashion@Microsoft](https://microsoft.sharepoint.com/teams/FashionMicrosoft). 
